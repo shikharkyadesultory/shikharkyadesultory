@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on ... Material Science and Complex Systems and Networks
 - 📫 How to reach me ...Mail me :- debs1205shikharkya@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...I consistently PIVOT as per requirement
 
 <!---
 shikharkyadesultory/shikharkyadesultory is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
